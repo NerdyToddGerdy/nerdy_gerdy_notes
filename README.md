@@ -1,0 +1,1 @@
+# nerdy_gerdy_notes
